@@ -1,0 +1,1 @@
+# Efecto-de-la-frecuencia-del-cambio-de-cebo-de-las-trampas-en-la-captura-de-picudos-de-la-palma-Rhyn
